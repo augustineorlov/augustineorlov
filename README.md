@@ -10,5 +10,5 @@ I am usually afk, offtab, or multi-tasking if I am not actively talking- just wh
   <p align="left">
   <img width="900" height="50" src="https://64.media.tumblr.com/c70f686f0b27b83aa11e98456a8d33c5/1a7499e8ed08e8b1-4a/s1280x1920/4dbd24a66678b2dcc55719f86a591ed628384dde.pnj">
     <p align="left">
-  <img width="1170" height="625" src="https://files.catbox.moe/yw0uz3.jfif">
+  <img width="1000" height="625" src="https://files.catbox.moe/nganu7.jpg">
   
