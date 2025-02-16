@@ -9,6 +9,7 @@ I am usually afk, offtab, or multi-tasking if I am not actively talking- just wh
   As for interests I am a big fortnite player, pokemon is my special interest, I enjoy sig games, and cookie run kingdom- fandom IWC. (theres a ton more but I can't be bothered, just ask me if you really wanna know.)
   <p align="left">
   <img width="900" height="50" src="https://64.media.tumblr.com/c70f686f0b27b83aa11e98456a8d33c5/1a7499e8ed08e8b1-4a/s1280x1920/4dbd24a66678b2dcc55719f86a591ed628384dde.pnj">
-    <p align="left">
-  <img width="1000" height="625" src="https://files.catbox.moe/nganu7.jpg">
+    <p align="center">
+            <img width="99" height="56" src="https://files.catbox.moe/ywf54q.png"> <img width="99" height="56" src="https://files.catbox.moe/t88842.png"> <img width="99" height="56" src="https://files.catbox.moe/k2frcy.jpg"> <img width="99" height="56" src="https://adriansblinkiecollection.neocities.org/stamps/e81.png"> <img width="99" height="56" src="https://adriansblinkiecollection.neocities.org/stamps/d41.gif"> <img width="99" height="56" src="https://adriansblinkiecollection.neocities.org/stamps/d109.png"> <img width="99" height="56" src="https://adriansblinkiecollection.neocities.org/stamps/e72.gif"> <img width="99" height="56" src="https://64.media.tumblr.com/c065e352d7c8243e6eeb958b4aaf581f/0bd78036aee0e21f-3b/s250x400/18525e6e38d497aa4afcba34ab5743034e8e8772.pnj"> <img width="99" height="56" src="https://adriansblinkiecollection.neocities.org/stamps/f48.png">
+  <img width="1000" height="555" src="https://files.catbox.moe/nganu7.jpg">
   
