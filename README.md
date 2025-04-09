@@ -6,7 +6,7 @@ Alola! My name is Augustine, August is fine too. Here's some information you mig
   <p align="left">
   <img width="900" height="50" src="https://64.media.tumblr.com/c70f686f0b27b83aa11e98456a8d33c5/1a7499e8ed08e8b1-4a/s1280x1920/4dbd24a66678b2dcc55719f86a591ed628384dde.pnj">
    <p align="left"> 
-I am usually afk, offtab, or multi-tasking if I am not actively talking- just whisper me! I am always thankful for crowns and conversation. C+H is fine always, i'm not big on roleplays but asking to roleplay is fine if we are friends. I hide a lot, I mean A LOT of people like whole AREAS worth, don't whine if i hide you, i'm a freeblocker! 
+READ MY STRAWPAGE. I am a fictkin of Augustine Orlov doubles will be blocked by default, sorry. I am usually afk, offtab, or multi-tasking if I am not actively talking- just whisper me! I am always thankful for crowns and conversation. C+H is fine always, i'm not big on roleplays but asking to roleplay is fine if we are friends. I hide a lot, I mean A LOT of people like whole AREAS worth, don't whine if i hide you, i'm a freeblocker! 
   <p align="left"> 
   As for interests I am a big fortnite player, pokemon is my special interest, I enjoy sig games, and cookie run kingdom- fandom IWC. (theres a ton more but I can't be bothered, just ask me if you really wanna know.)
   <p align="left">
