@@ -4,7 +4,11 @@
 
 <img width="650" height="400" src="https://files.catbox.moe/loswi2.webp">
 
-Alola! My name is Augustine, August is fine too. Here's some information you might need to know before interacting...
+⟢ 𐙚₊˚ 𝘼𝙐𝙂𝙐𝘚𝘛𝘐𝘕𝘌 ⚣ 𝜗𝜚 ࣪˖ ִ𐙚
+
+𝟭𝟲+ ☆⋆｡𖦹°‧★ ꒰ He / him ꒱. .
+
+˚ ◠ ₊ ❜ #1 AUGUST FICTKIN 𓇼 𓆝⋆.˚
   
   <img width="900" height="50" src="https://64.media.tumblr.com/c70f686f0b27b83aa11e98456a8d33c5/1a7499e8ed08e8b1-4a/s1280x1920/4dbd24a66678b2dcc55719f86a591ed628384dde.pnj">
   
