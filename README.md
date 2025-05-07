@@ -2,7 +2,7 @@
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z3r9frkfhicg6k9gpgdk726tg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="650" height="400" src="https://files.catbox.moe/loswi2.webp">
+<img width="575" height="600" src="https://files.catbox.moe/6t019h.png">
 
 ⟢ 𐙚₊˚ 𝘼𝙐𝙂𝙐𝘚𝘛𝘐𝘕𝘌 ⚣ 𝜗𝜚 ࣪˖ ִ𐙚
 
