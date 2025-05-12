@@ -6,10 +6,7 @@
 
 <img width="575" height="600" src="https://files.catbox.moe/yogm88.png">
 
-... Kowalski or Walski, he/him
-
-Fictkin, read my strawpage please.
-
+[1.](https://augwin.straw.page/)  [2.](https://x.com/sulkchasing) [3.](https://pronouns.cc/@Bosko)
   <p align="center">
 <img width="927" height="66" src="https://files.catbox.moe/jy44o3.jpeg">
 
@@ -21,5 +18,6 @@ Fictkin, read my strawpage please.
  <img width="927" height="40" src="https://files.catbox.moe/9h6ok9.png">
   </div>
   
-<div align="right">
- <img width="580" height="700" src="https://files.catbox.moe/jorg31.png">
+<div align="right"> 
+  <img width="580" height="700" src="https://files.catbox.moe/jorg31.png">
+
