@@ -7,6 +7,8 @@
 <img width="575" height="600" src="https://files.catbox.moe/yogm88.png">
 
 [1.](https://augwin.straw.page/)  [2.](https://x.com/sulkchasing) [3.](https://pronouns.cc/@Bosko)
+
+sign my straw / ata.
   <p align="center">
 <img width="927" height="66" src="https://files.catbox.moe/jy44o3.jpeg">
 
