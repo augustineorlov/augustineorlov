@@ -6,7 +6,7 @@
 
 <img width="575" height="600" src="https://files.catbox.moe/yogm88.png">
 
-[1.](https://augwin.straw.page/)  [2.](https://x.com/sulkchasing) [3.](https://pronouns.cc/@Bosko)
+[1.](https://augwin.straw.page/)  [2.](https://x.com/sulkchasing) [3.](https://pronouns.cc/@Orlov)
 
 sign my straw / ata.
   <p align="center">
