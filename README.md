@@ -8,7 +8,7 @@
 
 <img width="99" height="56" src="https://files.catbox.moe/uq1tzn.png"> <img width="99" height="56" src="https://files.catbox.moe/q9uqtw.png"> <img width="99" height="56" src="https://files.catbox.moe/91dkic.png"> 
 
-[1.](https://augwin.straw.page/)  [2.](https://x.com/sulkchasing) [3.](https://pronouns.cc/@Orlov) [4.♡](https://github.com/Nintenduu)
+[1.](https://swapfront.straw.page/)  [2.](https://x.com/sulkchasing) [3.](https://pronouns.cc/@Orlov) [4.♡](https://github.com/Nintenduu)
 
 Read at the very least link 1. BFYI + sign my straw / ata.
 
