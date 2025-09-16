@@ -8,7 +8,6 @@
 
 <img width="99" height="56" src="https://files.catbox.moe/uq1tzn.png"> <img width="99" height="56" src="https://files.catbox.moe/q9uqtw.png"> <img width="99" height="56" src="https://files.catbox.moe/91dkic.png"> 
 
-[♡](https://github.com/motograter) 
 
 Read at the very least link 1. BFYI + sign my straw / ata.
 
